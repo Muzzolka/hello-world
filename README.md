@@ -5,3 +5,8 @@ Tetsing repository
 tra;alalalala
 
 
+
+
+
+
+Będziemy coś dalej wpisywać
